@@ -1,0 +1,2 @@
+# 2Ariketa
+bigarren ariketa
